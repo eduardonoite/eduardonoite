@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @eduardonoite
+- 👀 I’m interested in web developer
+- 🌱 I’m currently learning about computer science
+- 💞️ I’m looking to collaborate on web developer and design
+- 📫 How to reach me: edunoite2005@hotmail.com
+- 😄 Pronouns: he/him
